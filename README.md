@@ -1,2 +1,0 @@
-# GE9X
-YOU KNOW WHO I AM
